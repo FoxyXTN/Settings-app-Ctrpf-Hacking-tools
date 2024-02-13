@@ -8,7 +8,7 @@ Parental Unlocker
 
 wifi hacking tool
 
-Cobnection 1 Codes:
+Connection 1 Codes:
 Corrupt Connection 1 
 Delete Connection 1
 Invisible Connection 1 
